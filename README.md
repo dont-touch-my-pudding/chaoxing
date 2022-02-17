@@ -6,4 +6,4 @@
 
 ![b8cd9d4b8148bf2bb0e248211c29b80](https://github.com/dont-touch-my-pudding/-/blob/main/31108d9d5a01b105bc932aeab33bfab.png)
 
-![31108d9d5a01b105bc932aeab33bfab](E:\Code\python\myProject\超星学习通刷课\31108d9d5a01b105bc932aeab33bfab.png)
+![31108d9d5a01b105bc932aeab33bfab](https://github.com/dont-touch-my-pudding/-/blob/main/31108d9d5a01b105bc932aeab33bfab.png)
